@@ -17,3 +17,7 @@ O objetivo do grupo é o de compartilhar:
 * Cursos, palestras, tutoriais, etc.
 -----------
 No mais. Tentem manter o bom humor e a educação perante os membros(as vezes isso é impossível, mas tentar não é ruim assim mesmo). Nenhuma questão é iniciante demais e todo mundo começou em algum lugar. 
+
+
+O hd do grupo fica em mega.co.nz
+advpltec@gmail.com(senhaadvpltec)
